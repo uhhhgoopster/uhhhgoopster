@@ -1,0 +1,5 @@
+- uhhhgoopster / Rian Iwakiri
+- 2d character artist
+- slowly learning 3d art. 
+- he / him
+- fun fact: i already have arthritis at 18
